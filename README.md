@@ -1,1 +1,3 @@
-# owomoist.github.io
+# Seojin Kim
+
+im ceng god
